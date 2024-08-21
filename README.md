@@ -5,4 +5,3 @@
 - Nadra
 - Acha
 - Owdit
-- Nenek sudah tua
