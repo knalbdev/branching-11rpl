@@ -8,3 +8,4 @@
 - Nenek sudah tua
 -giginya tingal dua
 -nella intan payong
+- Apalah dia apalah
